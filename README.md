@@ -1,4 +1,6 @@
-![seviyorumit](https://github.com/ezgithn/ezgithn/assets/108123991/7e7e8961-eada-40b6-94fb-725bb42e8b94)
+![metal2](https://github.com/ezgithn/ezgithn/assets/108123991/dfdbdbb3-4424-4b40-bd1e-fc9a539ed653) ![metal1](https://github.com/ezgithn/ezgithn/assets/108123991/263d202d-eca4-4c2c-a443-9bd40ffb4cec)
+
+
 
 
 
