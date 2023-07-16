@@ -1,4 +1,5 @@
-https://i.pinimg.com/564x/cb/e0/49/cbe0491cf65cb05be50ccdb2604a54e4.jpg
+![image](https://github.com/ezgithn/ezgithn/assets/108123991/2df40f91-d979-4cdf-b00e-6f7190a6f333)
+
 
 <h1 align="center">Hi 👋, I'm EzZGii🐾👾</h1>
 <h3 align="center">Jr. GameDeveloper🎮</h3>
