@@ -1,4 +1,5 @@
-![metal2](https://github.com/ezgithn/ezgithn/assets/108123991/dfdbdbb3-4424-4b40-bd1e-fc9a539ed653) ![metal1](https://github.com/ezgithn/ezgithn/assets/108123991/263d202d-eca4-4c2c-a443-9bd40ffb4cec)
+![cbe0491cf65cb05be50ccdb2604a54e4](https://github.com/ezgithn/ezgithn/assets/108123991/bf169841-37c4-4701-91c2-da9b6e2bc14c)
+
 
 
 
