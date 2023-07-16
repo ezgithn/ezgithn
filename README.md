@@ -1,4 +1,5 @@
-![image](https://github.com/ezgithn/ezgithn/assets/108123991/2df40f91-d979-4cdf-b00e-6f7190a6f333)
+![seviyorumit](https://github.com/ezgithn/ezgithn/assets/108123991/7e7e8961-eada-40b6-94fb-725bb42e8b94)
+
 
 
 <h1 align="center">Hi 👋, I'm EzZGii🐾👾</h1>
