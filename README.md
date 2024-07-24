@@ -8,7 +8,7 @@
 
 
 <h1 align="center">Hi 👋, I'm EzZGii🐾👾</h1>
-<h3 align="center"> GameDeveloper🎮</h3>
+<h3 align="center">🎮GameDeveloper🎮</h3>
 
 
 - 🔭 I’m currently working on Mobile Games with **Unity.**
